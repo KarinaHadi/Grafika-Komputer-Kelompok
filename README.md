@@ -1,2 +1,2 @@
 # Karinaaa
-wong stembel
+Mahasiswi Politeknik Negeri Banyuwangi
